@@ -1,7 +1,7 @@
 Bitmart Referral Id : XUspUk Get 60% Off On Trading Fees 
 
 🚀 BitMart Referral ID: XUspUk 🚀
-🎉 Save 20% on Trading Fees – Start Trading with Big Savings!
+🎉 Save 60% on Trading Fees – Start Trading with Big Savings!
 
 🔑 Use the referral ID XUspUk during signup and unlock a 60% discount on all your trading fees.
 
